@@ -1,0 +1,1 @@
+Like a slideshow or a carousel 
